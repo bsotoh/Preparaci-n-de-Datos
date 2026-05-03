@@ -1,3 +1,3 @@
 #### Members: Isidora Riquelme and Benjamín Soto
-#### Metropolitan Region (13)
+#### Group 10
 #### Municipality: Colina, Melipilla, Talagante
